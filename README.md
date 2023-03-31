@@ -7,6 +7,7 @@
 * Me gusta el universo cinematográfico de Marvel ¿Capitán América o Iron Man?
 * ¿Una pasión? el Fútbol, voy a la cancha de vez en cuando a ver a la Academía 💙🤍💙
 * Como hobby toco la bateria, *a mis vecinos les encanta¿?*
+* Helado favorito tramontana
 * Tengo dos michis y siempre que pueda voy a estar ahí sacándole fotos
 * Mas fotitos de los michis [Instagram](https://www.instagram.com/valendelrizzo)
 ***
